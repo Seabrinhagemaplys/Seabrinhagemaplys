@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Seabrinhagemaplys
 - 👀 I’m interested in Games, music and technology in general.
-- 🌱 I’m currently learning to program in Java and Gamemaker
+- 🌱 I’m currently studying Systems Engineering at UFMG (Universidade Federal de Minas Gerais
 - 💞️ I’m looking to collaborate on games 
 - 📫 How to reach me Instagram(@Seabringagemaplys), Discord, (seabrinhagemaplys#6850) or email, (olivrolegal@gmail.com)
 
